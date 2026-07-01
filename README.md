@@ -136,7 +136,7 @@ I am especially interested in roles where I can work with data analytics, machin
 ## Connect With Me
 
 📧 Email: rathodkaran2000@gmail.com  
-💼 LinkedIn: https://www.linkedin.com/in/karanrathod3007/ 
+💼 LinkedIn: https://www.linkedin.com/in/karanrathod3007/   
 🐙 GitHub: https://github.com/rathodkaran2000
 
 ---
